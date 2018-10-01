@@ -1,1 +1,0 @@
-# powisx.github.io
